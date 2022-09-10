@@ -1,0 +1,1 @@
+# hellminer.exe--c-stratum-tcp-na.luckpool.net-3956-xnsub--u-zs1ufhz7jn3v4fya5vw5cdj76gm8prdwrrf3mww
